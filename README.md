@@ -1,2 +1,2 @@
 # referendum_2018
-Date despre refernedumul din 2018
+Date despre referendumul din 2018
